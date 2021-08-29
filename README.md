@@ -1,3 +1,3 @@
 LJEGENDO
+sinano moje malo
 
-# otvara sta os sine
